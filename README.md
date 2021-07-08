@@ -1,1 +1,1 @@
-This will be for the practice we need to do at Codeup with will be a tremendous amount!!!
+This will be for the practice we need to do at Codeup which will be a tremendous amount!!!
